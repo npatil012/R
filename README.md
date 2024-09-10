@@ -1,0 +1,2 @@
+The Federal Reserve's monetary policy decisions, particularly those concerning the Fed Fund rate, hold significant implications for various financial markets and economic activities. Among these, the impact on mortgage rates is particularly crucial for the average American. Therefore, this study aims to explore the relationship between changes in the Fed Fund rate and mortgage rates, specifically focusing on the 30-year mortgage rate.
+
